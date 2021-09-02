@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aditya Sharma aka @Capta1nF
 - 👀 I’m interested in Coding & playing Video Games
-- 🌱 I’m currently working as an QAE @Amazon
+- 🌱 I’m currently working as an QAE @ Amazon
 - 📫 You can reach out to me on
       1. Instagram: sharma__aditya
       2. LinedIn: https://www.linkedin.com/in/sharma--aditya/
